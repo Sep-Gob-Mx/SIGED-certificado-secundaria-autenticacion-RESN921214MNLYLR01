@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RESN921214MNLYLR01
+RESN921214MNLYLR01
